@@ -1,0 +1,1 @@
+# EsameParzialeInformatica7Aprile2022
